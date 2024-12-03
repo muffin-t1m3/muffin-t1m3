@@ -1,0 +1,1 @@
+스터디 노트: https://slash-kale-da3.notion.site/Study-Notes-151bf8f5c51380a1bde2da5ecf6218d8?pvs=4
